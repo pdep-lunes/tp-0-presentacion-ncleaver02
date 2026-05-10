@@ -11,7 +11,7 @@ Nahuel Cleaver
 - Me gustan los juegos de estrategia e indies.
 - Suelo ir al gimnasio bastante (aunque lo sufro mucho).
 - Tengo el Platino de The binding of Isaac (Flash) y My Name Is Mayo 1, 2, y 3.
-- Mi series favoritas son Breaking Bad y Attack on Titan.
+- Mi series favoritas son Breaking Bad, Better Call Saul y Attack on Titan.
 - Me niego a jugar Silksong hasta hacer el panteon 5 con todos los bindings.
 - Tengo 2 perros.
 - Me encantan los animales (salvo los bichos).
