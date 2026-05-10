@@ -14,7 +14,8 @@ Nahuel Cleaver
 - Mi series favoritas son Breaking Bad y Attack on Titan.
 - Me niego a jugar Silksong hasta hacer el panteon 5 con todos los bindings.
 - Tengo 2 perros.
-- Me encantan los animales (salvo los bichos, los odio en general).
+- Me encantan los animales (salvo los bichos).
+- El hollow knight me hizo apreciar mas a los bichos (pero no me saco el panico).
 
 
 
